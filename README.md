@@ -14,7 +14,7 @@
 
 <div align="center">
 
-![213329504-bc4d0ab3-1f4c-4395-9389-388cef7e67f7](https://github.com/julianakcmelo/Nosso-Trabalho/assets/168940325/a469c46a-eb7c-4db0-a8ea-4f9960dba785)
+![Captura de tela de 2024-05-12 23-00-41](https://github.com/julianakcm1/NossoTrabalho/assets/54086293/5fa52dcb-f6d7-4c5d-b9e3-463538a19814)
 
 </div>
 
